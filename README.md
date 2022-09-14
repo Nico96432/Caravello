@@ -1,7 +1,7 @@
 Like every year, 
 Call of Duty tries to satisfy all gamers, 
-no matter what they are looking for.non importa che cosa stanno cercando
-Solo adventure, multi-competitive, collaborative zombie, free-to-play battle royale. 
+no matter what they are looking for.non importa che cosa stiamo cercando
+Solo adventure, multi-competitive, collaborative zombie, free-to-play battle royale. solo avventura, multi competitivo, zombie collaborativo , gratis battaglia reale
 A turnkey offer, XXL menu style, which this year lacks care at launch. 
 We see it through the countryside which despite its exoticism offers nothing exceptional or memorable to experience. 
 This is also seen in Zombie Mode, 
